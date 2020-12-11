@@ -9,6 +9,6 @@ I'm Sonia. A Junior Dev and Software Engineering Teaching Assistant.✨
 - 💬 Ask me about ... gardening- it's my new lockdown hobby.
 - 📫 How to reach me: ... by email or on linkedin! 
 - 😄 Pronouns: ... She/Her
-- ⚡ Fun fact: I'm ambidextrous.
+- ⚡ Fun fact: I'm bilingual and enjoy soaking up languages. At the moment, I'm learning conversational French and Spanish, and basic hanguk-eo.
 
 
